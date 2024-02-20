@@ -4,7 +4,7 @@ Welcome to the support page for Love Windsor. If you're experiencing any issues 
 
 ## Contact Support
 
-For support inquiries, please email us at: info@levitus.co.uk
+For support inquiries, please email us at: Info@lovemediaapps.co.uk
 
 We aim to respond to all inquiries as soon as possible.
 
